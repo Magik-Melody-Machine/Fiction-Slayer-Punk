@@ -57,3 +57,5 @@ Nothing here is porn, kink, foreplay, or adult content.
 Though that is technically relative to each perspective, 
 and society brainwashes people to all think the same and oversexualize everything until undoing that brainwashing, 
 where it applies to each individual.
+
+Also we use CW: language ("sentence enhancers")
