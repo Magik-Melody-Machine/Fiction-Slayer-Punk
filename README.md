@@ -16,6 +16,8 @@ This repository serves as a public, timestamped dedication of the work and its m
 - Fiction Slayer
 - Fiction Punk
 - BiG Byte Burger (part of the people's birthright)
+- Nookblood kola (cola)
+- Muki's szechuan teriyaki dipping sauce
 - Stylized spellings, recursive metaphors, and narrative explosions
 
 ---
