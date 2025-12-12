@@ -576,12 +576,12 @@ Pmana perfect parrys dg7’s downward slash with their left sword inward, backsl
 Pmana perfect parrys dg9’s thrust inward while spinning, stabs dg9 with their left sword in the body, lets go, turns the other way to stab with their right sword, faces dp9 as it pulls both blades out in NPC grip, ripping all of dg9’s guts out*
 [Nomi] Oh yeah? Well.. magik punch!~ *kicks dg10 in the sqomp while saying “womp”, dg10 falls to their knees, Nomi throws a knee, busting dg10’s face open*
 [Pmana] that was a kick
-[M-626] well, that is how deception magik works
+[Nomi] well, that is how deception magik works
 [Pmana] I know, just pointing it out for more dialogue to bring more attention to the reference so the viewer doesn’t miss it *looks at fourth wall*
 [Nomi] I knowing, we are konsciously konnected through the UniKorn’s konsciousness, which is and is not the headspace of the skriptwriter *looks at fourth wall*
 [skriptwriter] why are my karakters so self aware *looks into the void while thinking of how if the universe is truly infinite, it would be essentially a multiverse and would contain a world where they are a karakter, 
 followed by questioning why the plop a writer would write a story of a karakter that writes a story like theirs*
-Whatever, episode over.. Maybe Nomi will get the sauce in episode 5…
+Whatever, episode over.. Maybe Nomi will get the sauce in episode 5 when Rose Nookblood can talk after 24 hours or whatever…
 
 [UniKorn System T-626] “Keyboard drop” wait.. I should add this part first..
 
