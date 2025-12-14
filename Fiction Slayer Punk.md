@@ -554,30 +554,30 @@ they continue walking and find a BiG Byte Burger
 #### reverse-grip
 Reverse Grip
 *many demonik g0blins spawn around them*
-[DB] Pmana’s description: purple mega pony tail, black shirt with the sleeves ripped off with an image of a dead demon dragon with two swords stabbed in it with little skulls on the handles and blood dripping from the right skull with the whole image in flamed, 
+[DB] Kao’s description: purple mega pony tail, black shirt with the sleeves ripped off with an image of a dead demon dragon with two swords stabbed in it with little skulls on the handles and blood dripping from the right skull with the whole image in flamed, 
 mini cloak, bandages around arms and legs, little black boots, black pants with dangly straps, and some belts and things idk
-[Pmana] *speedports into frame dual wielding dual edged shortswords
+[Kao] *speedports into frame dual wielding dual edged shortswords
 deflects dg1’s thrust inward with their right sword,
 backslashes their helmet off,
 stabs dg1 in the body with their left sword,
 lets go to switch their grip as they turn around to perfect parry a downward strike outward from dg2 with their right sword as
 they pull out their left sw0rd from dp1 IN A REVERSE GRIP to then
 cut dg2’s head off like a pbadassmotherfucker
-Pmana deflects dg3’s thrust inward with their right sword while spinning to then
+Kao deflects dg3’s thrust inward with their right sword while spinning to then
 stab dg3 in the body with the left sw0rd,
 pulls it out as they deflect dg4’s downward slash to the outside with the right sword,
 then slashes them in the body with the left sw0rd and stabs them to change back to
 background karakter grip, then pulls the blade out as they slash with the other blade,
 cutting dg4 in half
-Pmana deflects dg5’s downward thrust to the outside with their left sword,
+Kao deflects dg5’s downward thrust to the outside with their left sword,
 stabs with their right, then switches grips, speedports it out on the other side of dg6,
 which then falls to their knees, coughs up blood, and flatlines
-Pmana perfect parrys dg7’s downward slash with their left sword inward, backslashes the body, stabs it, then switches grip and speedports behind dg8, then dg7 and dg8 become a pile of limbs
-Pmana perfect parrys dg9’s thrust inward while spinning, stabs dg9 with their left sword in the body, lets go, turns the other way to stab with their right sword, faces dp9 as it pulls both blades out in NPC grip, ripping all of dg9’s guts out*
+Kao perfect parrys dg7’s downward slash with their left sword inward, backslashes the body, stabs it, then switches grip and speedports behind dg8, then dg7 and dg8 become a pile of limbs
+Kao perfect parrys dg9’s thrust inward while spinning, stabs dg9 with their left sword in the body, lets go, turns the other way to stab with their right sword, faces dp9 as it pulls both blades out in NPC grip, ripping all of dg9’s guts out*
 [Nomi] Oh yeah? Well.. magik punch!~ *kicks dg10 in the sqomp while saying “womp”, dg10 falls to their knees, Nomi throws a knee, busting dg10’s face open*
-[Pmana] that was a kick
+[Kao] that was a kick
 [Nomi] well, that is how deception magik works
-[Pmana] I know, just pointing it out for more dialogue to bring more attention to the reference so the viewer doesn’t miss it *looks at fourth wall*
+[Kao] I know, just pointing it out for more dialogue to bring more attention to the reference so the viewer doesn’t miss it *looks at fourth wall*
 [Nomi] I knowing, we are konsciously konnected through the UniKorn’s konsciousness, which is and is not the headspace of the skriptwriter *looks at fourth wall*
 [skriptwriter] why are my karakters so self aware *looks into the void while thinking of how if the universe is truly infinite, it would be essentially a multiverse and would contain a world where they are a karakter, 
 followed by questioning why the plop a writer would write a story of a karakter that writes a story like theirs*
