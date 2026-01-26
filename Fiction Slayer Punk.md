@@ -10,7 +10,7 @@ My fragmented system/multi-mind dedicates this work to the public domain under t
 You are free to copy, modify, remix, or use this work for any purpose, without asking permission.
 Giving my system credit is appreciated but not required.
 If you wish to give credit, you may add linktr.ee/fictionslayerpunk, and/or: 
-"Source kreator cashtag: $PayPalUser626"
+[redaketed]
 to help my system out in this capitalist hellscape.
 
 Here is a license thingy:
@@ -591,9 +591,9 @@ Whatever, episode over.. Maybe Nomi will get the sauce in episode 5 when Rose No
 ### episode-5-writer-possessive-brick
 Episode 5: Writer’s Brick
 
-#### title
-Title
-*Kloud breaks the past and donks everything up tphysically*
+#### title-1
+Title 1
+*[Redacted] breaks the past and donks everything up tphysically*
 [Axio] …
 [Mosi] Oh…
 [Komik] Hmm.. *starts building a komputer*
@@ -633,9 +633,6 @@ Seeing how I am already “in” the komputer, I don’t need to link to it. Non
 Title 2
 [DB] The rest of this episode is under konstruction, by that we mean it already exists but the skriptwriter is tired
 [Skriptwriter] I do lots of stuff because I am lots of tpeople “in” “one” “human” “mind” (not in a mind, not one because I am “in” an infinite number of realities, not human because everything is a relative konstruct, not a mind, but a mynd*)
-[Lovi] *gives skriptwriter a soft-wedgie revealing the legholes of their orange boyshorts style panties, then slides the waistband down just above the waistband of their pants, bunching the panties up*
-[skriptwriter] *no reaction* think “I” am too many alters fronting to have an “external” reaction and don’t even know how to feel about it other than it being nonpainful and not uncomfortable. It actually makes those in front more comfortable, 
-or that is Lovi’s influence. I imagine Lovi is the reason we are typing this and leaving it in the fiction.. Well, I will edit it out, but the original will always have this part. Maybe that will motivate us to finish this episode.
 
 [UniKorn System T-626] “Keyboard drop” wait.. I should add this part first..
 
