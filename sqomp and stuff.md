@@ -25,7 +25,7 @@ The concept behind these added words is also added to the CC0 (which alter wante
 ## "speedport" is added to the CC0 (already was, but now it is more difficult to disprove)
 Means to move so fast it looks like you teleported
 
-## Misc words
+## Misc words and stuff
 plop/plopping/plopper, bullgunk/bullgunked/bullgunking/gunk/gunking/gunked/gunker/gunky, gonk/gonking/gonked/gonker, flimflam, bunk, donk/donking/donked, barnaclehead, nuckleheadmcspazotron, mushroom foot sniffer, GreenRasPBerry, Hello Bunny
 
 All these words and phrases are protected by the CC0 (barnacleheads)
