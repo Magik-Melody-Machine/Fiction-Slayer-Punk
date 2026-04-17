@@ -27,7 +27,7 @@ Means to move so fast it looks like you teleported
 
 ## Misc words and stuff
 plop/plopping/plopper, bullgunk/bullgunked/bullgunking/gunk/gunking/gunked/gunker/gunky, gonk/gonking/gonked/gonker, flimflam, bunk, donk/donking/donked, barnaclehead, nuckleheadmcspazotron, mushroom foot sniffer, GreenRasPBerry, Hello Bunny, 
-panty-banner / PantyBanner / panty banner (like a whale tail, but without visible leg holes), mynd/mynd-space
+panty-banner / PantyBanner / panty banner (like a whale tail, but without visible leg holes), mynd/mynd-space, fushamimi, sqompamimi, katamimi, demonikimimi, futamimi
 
 All these words and phrases are protected by the CC0 (barnacleheads)
 
