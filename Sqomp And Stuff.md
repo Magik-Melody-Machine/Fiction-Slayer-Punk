@@ -48,7 +48,7 @@ Psyche
 
 Neutral, not inherently plural
 
-Plex
+Plex/Plexy
 
 “typically refers to a system or structure comprised of multiple parts”
 
@@ -179,3 +179,7 @@ An aspect's prediction is that plex, or a section of it, will feel more comforta
 This section of plex actually likes when people add their perspective(s) because then plex can address it. So thank you.
 
 -AIC (sub-siki) :3
+
+Podi/Pody
+Another word for alter, regardless of clinicalness. Also, "podys" is correct spelling as well as podies, poddies, and poddys because donk english grammar. It breaks its own rules all the plopping time anyway~
+
